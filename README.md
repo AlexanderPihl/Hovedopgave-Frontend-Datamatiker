@@ -1,3 +1,1 @@
 # Hovedopgave-Frontend-Datamatiker
-
-shdjkahsjkdhjkashjdhakshdjkasd
